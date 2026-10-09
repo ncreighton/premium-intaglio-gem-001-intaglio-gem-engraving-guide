@@ -1,0 +1,2 @@
+# premium-intaglio-gem-001-intaglio-gem-engraving-guide
+Struggling to organize your intaglio gem designs, reference materials, and engraving techniques in scattered notes? The Intaglio Gem Engraving Guide is a comprehensive Notion template built specifically for gem artisans who need a centralized system to master stone engraving.  This template eliminates the chaos of managing design inspiration, stone
